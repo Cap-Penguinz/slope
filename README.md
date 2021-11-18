@@ -1,1 +1,24 @@
-# slope
+# Slope
+SLOPE!!!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Just something random
